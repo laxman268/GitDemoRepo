@@ -1,3 +1,3 @@
 Name: Saharsh
 
-Fav word: Restart
+Fav word: Paradise
